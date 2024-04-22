@@ -1,1 +1,1 @@
-# Social_Media_Webiste
+# Social_Media_Website
